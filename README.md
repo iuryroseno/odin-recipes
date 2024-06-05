@@ -5,5 +5,5 @@ By this project i want to show what the skills i developed throughout TOP founda
 
 A quicky note to myself from the future: Wassup Iury, tell me how the process of creating this project was. By the way, i wish you have learned a lot with it and have fun it with. Good luck! God bless you in this new path.
 
-Iury from the past.
+Iury from the past.......
 
